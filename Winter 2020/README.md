@@ -1,3 +1,4 @@
+# Should You Watch It? Winter 2020 Edition
 [Fall 2019 Edition’s Thread](https://www.reddit.com/r/anime/comments/doypqb/should_you_watch_it_fall_2019_edition/)
 
 ***
@@ -32,8 +33,8 @@ If I am to be honest, the show has so many faults, I can begin to cover them all
 
 ## [**Eizouken ni wa Te wo Dasu na!**](https://myanimelist.net/anime/39792/Eizouken_ni_wa_Te_wo_Dasu_na)
 
-(English Title: *Keep Your Hands Off Eizouken!*)
 ![](https://cdn.myanimelist.net/images/anime/1950/104498l.jpg)
+(English Title: *Keep Your Hands Off Eizouken!*)
 #### Banjo’s Perspective
 
 ***Must Watch It***
