@@ -34,7 +34,9 @@ If I am to be honest, the show has so many faults, I can begin to cover them all
 ## [**Eizouken ni wa Te wo Dasu na!**](https://myanimelist.net/anime/39792/Eizouken_ni_wa_Te_wo_Dasu_na)
 
 ![](https://cdn.myanimelist.net/images/anime/1950/104498l.jpg)
+
 (English Title: *Keep Your Hands Off Eizouken!*)
+
 #### Banjo’s Perspective
 
 ***Must Watch It***
