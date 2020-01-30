@@ -285,7 +285,7 @@ All in all, Nekopara is not a project that’s especially ambitious or exciting,
 
 ***
 
-##[**Pet**](https://myanimelist.net/anime/37522/Pet)
+## [**Pet**](https://myanimelist.net/anime/37522/Pet)
 
 #### Banjo’s Perspective
 
@@ -313,7 +313,7 @@ To summarize, I recommend watching this show for the unique world-building and v
 
 ***
 
-##[**Rikei ga Koi ni Ochita no de Shoumei shitemita.**](https://myanimelist.net/anime/38992/Rikei_ga_Koi_ni_Ochita_no_de_Shoumei_shitemita)
+## [**Rikei ga Koi ni Ochita no de Shoumei shitemita.**](https://myanimelist.net/anime/38992/Rikei_ga_Koi_ni_Ochita_no_de_Shoumei_shitemita)
 
 (English Title: *Science Fell In Love, So I Tried to Prove It*)
 
@@ -343,7 +343,7 @@ In short, this is a must-watch for romance lovers, but everyone less into romanc
 
 ***
 
-##[**Runway de Waratte**](https://myanimelist.net/anime/40392/Runway_de_Waratte)
+## [**Runway de Waratte**](https://myanimelist.net/anime/40392/Runway_de_Waratte)
 
 (English Title: *Smile Down the Runway*)
 
@@ -371,7 +371,7 @@ Overall, Smile on the Runway looks like it's shaping up to be a nicely balanced 
 
 ***
 
-##[**Somali to Mori no Kamisama**](https://myanimelist.net/anime/39575/Somali_to_Mori_no_Kamisama)
+## [**Somali to Mori no Kamisama**](https://myanimelist.net/anime/39575/Somali_to_Mori_no_Kamisama)
 
 (English Title: *Somali and the Forest Spirit*)
 
