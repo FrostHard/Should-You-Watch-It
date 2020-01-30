@@ -30,7 +30,7 @@ If I am to be honest, the show has so many faults, I can begin to cover them all
 
 ***
 
-##[**Eizouken ni wa Te wo Dasu na!**](https://myanimelist.net/anime/39792/Eizouken_ni_wa_Te_wo_Dasu_na)
+## [**Eizouken ni wa Te wo Dasu na!**](https://myanimelist.net/anime/39792/Eizouken_ni_wa_Te_wo_Dasu_na)
 
 (English Title: *Keep Your Hands Off Eizouken!*)
 
