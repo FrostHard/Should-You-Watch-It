@@ -2,9 +2,9 @@
 
 ***
 
-##[**Darwin’s Game**](https://myanimelist.net/anime/38656/Darwins_Game)
+## [**Darwin’s Game**](https://myanimelist.net/anime/38656/Darwins_Game)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Drop It***
 
@@ -14,7 +14,7 @@ The first episode is a double-feature, but it only serves to stab home the point
 
 A lack of meta details and necessary explanations seek to create an air of mystery to the whole debacle, yet this direction exacerbates the show’s problems. I.e., this no knowledge is no good, for the implausibility and the irrationality of the decisions and the confrontations equates to suspended disbelief that drags down the evolution of its natural selection.
 
-####Another Perspective, courtesy of /u/Cryzzalis:
+#### Another Perspective, courtesy of /u/Cryzzalis:
 
 ***Drop It***
 
@@ -34,7 +34,7 @@ If I am to be honest, the show has so many faults, I can begin to cover them all
 
 (English Title: *Keep Your Hands Off Eizouken!*)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Must Watch It***
 
@@ -44,7 +44,7 @@ And they certainly go the distance. Above anything else, this anime personifies 
 
 To put devil’s advocate in motion, a rather loose plot and possible pigeonholing for the main trio raise the tiniest of flags. Nevertheless, to return the other way, its overall *potential* is clearly there anyway as the open-ended nature of its storytelling and the grounded realism of the characters prove it has inherent writing chops. With meta inclusions of drawing techniques and the fact that the comedic pieces land upright, and this anime becomes worthy of several high-fives.
 
-####Another Perspective, courtesy of /u/meiiro:
+#### Another Perspective, courtesy of /u/meiiro:
 
 ***Must Watch It***
 
@@ -58,9 +58,9 @@ Overall, Eizouken is an enjoyable watch, down-to-earth in plot and outside the b
 
 ***
 
-##[**ID: Invaded**](https://myanimelist.net/anime/40046/ID_Invaded)
+## [**ID: Invaded**](https://myanimelist.net/anime/40046/ID_Invaded)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Watch It***
 
@@ -72,7 +72,7 @@ Moreover, the anime is keen on exploring the important members of its cast and t
 
 The artistic vision for this show isn’t anything too special, so there does exist room for improvement. But this early on, the predictions and discoveries of its identity should hopefully be a satisfying endeavor.
 
-####Another Perspective, courtesy of /u/Nazenn:
+#### Another Perspective, courtesy of /u/Nazenn:
 
 ***Drop It***
 
@@ -84,9 +84,9 @@ While the MC’s investigations and history are very interesting, they also fall
 
 ***
 
-##[**Infinite Dendrogram**](https://myanimelist.net/anime/38909/Infinite_Dendrogram)
+## [**Infinite Dendrogram**](https://myanimelist.net/anime/38909/Infinite_Dendrogram)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Drop It***
 
@@ -96,7 +96,7 @@ The key motif of this story comes from the understood notion that this VR world 
 
 It goes on. The anime doesn’t seem up to the challenge of asking – let alone answering – the moral and the societal questions that their literal realistic fantasy entails. Not to mention that, on an artistic front, the show shows weak signs already. When all is said and done, the scope and the impact of this project is not just finite but practically zero.
 
-####Another Perspective, courtesy of /u/porpoiseoflife:
+#### Another Perspective, courtesy of /u/porpoiseoflife:
 
 ***Consider It***
 
@@ -108,11 +108,11 @@ For fans of the VRMMO subgenre, this should be promoted to Watch status. For eve
 
 ***
 
-##[**Ishuzoku Reviewers**](https://myanimelist.net/anime/40010/Ishuzoku_Reviewers)
+## [**Ishuzoku Reviewers**](https://myanimelist.net/anime/40010/Ishuzoku_Reviewers)
 
 (English Title: *Interspecies Reviewers*)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Consider It***
 
@@ -124,7 +124,7 @@ Ironically enough, though, the diversity within the anime is also its downfall. 
 
 If nothing else, the project has some nice production values, and the sex shows no signs of stopping its upward debauchery. So, for now, its final review must wait.
 
-####Another Perspective, courtesy of /u/Dagonsnake:
+#### Another Perspective, courtesy of /u/Dagonsnake:
 
 ***Consider It***
 
@@ -138,11 +138,11 @@ However, one final point I unfortunately feel I need to make since the show is a
 
 ***
 
-##[**Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu.**](https://myanimelist.net/anime/38790/Itai_no_wa_Iya_nano_de_Bougyoryoku_ni_Kyokufuri_Shitai_to_Omoimasu)
+## [**Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu.**](https://myanimelist.net/anime/38790/Itai_no_wa_Iya_nano_de_Bougyoryoku_ni_Kyokufuri_Shitai_to_Omoimasu)
 
 (English Title: *BOFURI: I Don’t Want to Get Hurt, so I’ll Max Out My Defense.*)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Watch It***
 
@@ -152,7 +152,7 @@ This anime channels cuteness as Maple stumbles into upgrades, skirmishes, and in
 
 The story and the characters seem content with where they’re at, so they’ll most likely not go anywhere too deep or too compelling, missing out on that worthwhile status. But when the action segments impress and the docile moments delight regardless of those factors, the project stacks its own defense in the form of above-average execution.
 
-####Another Perspective, courtesy of /u/Daniel_Is_I:
+#### Another Perspective, courtesy of /u/Daniel_Is_I:
 
 ***Drop It***
 
@@ -167,11 +167,11 @@ I can understand why some might enjoy *Bofuri*, but I see no reason to watch it 
 
 ***
 
-##[**Jibaku Shounen Hanako-kun**](https://myanimelist.net/anime/39534/Jibaku_Shounen_Hanako-kun)
+## [**Jibaku Shounen Hanako-kun**](https://myanimelist.net/anime/39534/Jibaku_Shounen_Hanako-kun)
 
 (English Title: *Toilet-bound Hanako-kun*)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Consider It***
 
@@ -185,7 +185,7 @@ It also has a (strangely enough) unheard of problem in this medium: incorrect au
 
 Again, however, the art alone prevents the entire project from being flushed down the toilet.
 
-####Another Perspective, courtesy of /u/ZBLongLadder:
+#### Another Perspective, courtesy of /u/ZBLongLadder:
 
 ***Must Watch It***
 
@@ -199,11 +199,11 @@ In all, I have been thoroughly enjoying the show, and I highly recommend it to a
 
 ***
 
-##[**Koisuru Asteroid**](https://myanimelist.net/anime/39388/Koisuru_Asteroid)
+## [**Koisuru Asteroid**](https://myanimelist.net/anime/39388/Koisuru_Asteroid)
 
 (English Title: *Asteroid in Love*)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Consider It***
 
@@ -213,7 +213,7 @@ Credit where credit is due, the vibe of the anime vies for realism. Rather than 
 
 However, it’s probably more accurate to call it “CG---" because it has effectively dropped the “DCT”. Despite the premises, where the anime is supposed to be about the study of space and the research into geology, the content often distracts itself. Granted, they work towards fleshing out the characters, so they aren’t completely meaningless, but the reasoning for telling this tale and consequently the flight of this asteroid is flimsy at best.
 
-####Another Perspective, courtesy of /u/SpareUmbrella:
+#### Another Perspective, courtesy of /u/SpareUmbrella:
 
 ***Must Watch It***
 
@@ -229,11 +229,11 @@ I think this show is a must-watch not because it's necessarily ground-breaking, 
 
 ***
 
-##[**Kyokou Suiri**](https://myanimelist.net/anime/39017/Kyokou_Suiri)
+## [**Kyokou Suiri**](https://myanimelist.net/anime/39017/Kyokou_Suiri)
 
 (English Title: *In/Spectre*)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Consider It***
 
@@ -245,7 +245,7 @@ Beyond these two elements, the rest is mixed. Huge amounts of dialogue are not n
 
 Thus, the current inspection stays nominal.
 
-####Another Perspective, courtesy of /u/Groenboys:
+#### Another Perspective, courtesy of /u/Groenboys:
 
 ***Watch It***
 
@@ -259,9 +259,9 @@ For everyone else, if you like mysteries and witty characters, absolutely check 
 
 ***
 
-##[**Nekopara**](https://myanimelist.net/anime/38924/Nekopara)
+## [**Nekopara**](https://myanimelist.net/anime/38924/Nekopara)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Consider It***
 
@@ -273,7 +273,7 @@ Artistically, the designs for the cat girls are varied and fit the motifs of the
 
 So, characteristically, the anime elicits smiles no doubt, yet whether this shtick uses up its nine lives before the end has become a dire possibility.
 
-####Another Perspective, courtesy of /u/alwayslonesome:
+#### Another Perspective, courtesy of /u/alwayslonesome:
 
 ***Consider It***
 
@@ -287,7 +287,7 @@ All in all, Nekopara is not a project that’s especially ambitious or exciting,
 
 ##[**Pet**](https://myanimelist.net/anime/37522/Pet)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Drop It***
 
@@ -297,7 +297,7 @@ So much of the show is already either misplaced or wrong. The production values,
 
 If that weren’t bad enough, the anime gets worse. Unnecessary convolution in the storytelling, uninteresting drama, and low entertainment opportunities in general compound the present mess into a catastrophe. There’s almost nothing worth praising in this project, no matter how many “peaks” or “valleys” this pet visits.
 
-####Another Perspective, courtesy of /u/throwaway_zuk:
+#### Another Perspective, courtesy of /u/throwaway_zuk:
 
 ***Watch It***
 
@@ -317,7 +317,7 @@ To summarize, I recommend watching this show for the unique world-building and v
 
 (English Title: *Science Fell In Love, So I Tried to Prove It*)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Must Watch It***
 
@@ -329,7 +329,7 @@ The artistry isn’t the most spectacular around, but its changes to match for l
 
 All in all, this lovely project has proven itself from the get-go.
 
-####Another Perspective, courtesy of /u/Taiboss:
+#### Another Perspective, courtesy of /u/Taiboss:
 
 ***Consider It***
 
@@ -347,7 +347,7 @@ In short, this is a must-watch for romance lovers, but everyone less into romanc
 
 (English Title: *Smile Down the Runway*)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Consider It***
 
@@ -359,7 +359,7 @@ On the other hand, the project showcases some cracks. Parts of the drama can fee
 
 But with a clear runway to follow and primed arcs to unfold, this one may very well be smiling come the season’s end.
 
-####Another Perspective, courtesy of /u/MapoTofuMan:
+#### Another Perspective, courtesy of /u/MapoTofuMan:
 
 ***Must Watch It***
 
@@ -375,7 +375,7 @@ Overall, Smile on the Runway looks like it's shaping up to be a nicely balanced 
 
 (English Title: *Somali and the Forest Spirit*)
 
-####Banjo’s Perspective
+#### Banjo’s Perspective
 
 ***Must Watch It***
 
@@ -385,7 +385,7 @@ Each aspect of this project has been nothing less than great thus far. The touch
 
 In total, the spirit and the execution of this anime is as grand as it can be right now, making this show absolutely one of the best of the best this season.
 
-####Another Perspective, courtesy of /u/ErinaHartwick:
+#### Another Perspective, courtesy of /u/ErinaHartwick:
 
 ***Watch It***
 
