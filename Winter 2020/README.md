@@ -3,7 +3,7 @@
 ***
 
 ## [**Darwin’s Game**](https://myanimelist.net/anime/38656/Darwins_Game)
-
+![](https://cdn.myanimelist.net/images/anime/1105/104787l.jpg)
 #### Banjo’s Perspective
 
 ***Drop It***
@@ -33,7 +33,7 @@ If I am to be honest, the show has so many faults, I can begin to cover them all
 ## [**Eizouken ni wa Te wo Dasu na!**](https://myanimelist.net/anime/39792/Eizouken_ni_wa_Te_wo_Dasu_na)
 
 (English Title: *Keep Your Hands Off Eizouken!*)
-
+![](https://cdn.myanimelist.net/images/anime/1950/104498l.jpg)
 #### Banjo’s Perspective
 
 ***Must Watch It***
@@ -59,7 +59,7 @@ Overall, Eizouken is an enjoyable watch, down-to-earth in plot and outside the b
 ***
 
 ## [**ID: Invaded**](https://myanimelist.net/anime/40046/ID_Invaded)
-
+![](https://cdn.myanimelist.net/images/anime/1954/104672l.jpg)
 #### Banjo’s Perspective
 
 ***Watch It***
@@ -85,7 +85,7 @@ While the MC’s investigations and history are very interesting, they also fall
 ***
 
 ## [**Infinite Dendrogram**](https://myanimelist.net/anime/38909/Infinite_Dendrogram)
-
+![](https://cdn.myanimelist.net/images/anime/1764/104365l.jpg)
 #### Banjo’s Perspective
 
 ***Drop It***
@@ -111,7 +111,7 @@ For fans of the VRMMO subgenre, this should be promoted to Watch status. For eve
 ## [**Ishuzoku Reviewers**](https://myanimelist.net/anime/40010/Ishuzoku_Reviewers)
 
 (English Title: *Interspecies Reviewers*)
-
+![](https://cdn.myanimelist.net/images/anime/1877/104025l.jpg)
 #### Banjo’s Perspective
 
 ***Consider It***
@@ -141,7 +141,7 @@ However, one final point I unfortunately feel I need to make since the show is a
 ## [**Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu.**](https://myanimelist.net/anime/38790/Itai_no_wa_Iya_nano_de_Bougyoryoku_ni_Kyokufuri_Shitai_to_Omoimasu)
 
 (English Title: *BOFURI: I Don’t Want to Get Hurt, so I’ll Max Out My Defense.*)
-
+![](https://cdn.myanimelist.net/images/anime/1438/105344l.jpg)
 #### Banjo’s Perspective
 
 ***Watch It***
@@ -170,7 +170,7 @@ I can understand why some might enjoy *Bofuri*, but I see no reason to watch it 
 ## [**Jibaku Shounen Hanako-kun**](https://myanimelist.net/anime/39534/Jibaku_Shounen_Hanako-kun)
 
 (English Title: *Toilet-bound Hanako-kun*)
-
+![](https://cdn.myanimelist.net/images/anime/1700/104788l.jpg)
 #### Banjo’s Perspective
 
 ***Consider It***
@@ -202,7 +202,7 @@ In all, I have been thoroughly enjoying the show, and I highly recommend it to a
 ## [**Koisuru Asteroid**](https://myanimelist.net/anime/39388/Koisuru_Asteroid)
 
 (English Title: *Asteroid in Love*)
-
+![](https://cdn.myanimelist.net/images/anime/1191/104212l.jpg)
 #### Banjo’s Perspective
 
 ***Consider It***
@@ -232,7 +232,7 @@ I think this show is a must-watch not because it's necessarily ground-breaking, 
 ## [**Kyokou Suiri**](https://myanimelist.net/anime/39017/Kyokou_Suiri)
 
 (English Title: *In/Spectre*)
-
+![](https://cdn.myanimelist.net/images/anime/1517/104785l.jpg)
 #### Banjo’s Perspective
 
 ***Consider It***
@@ -260,7 +260,7 @@ For everyone else, if you like mysteries and witty characters, absolutely check 
 ***
 
 ## [**Nekopara**](https://myanimelist.net/anime/38924/Nekopara)
-
+![](https://cdn.myanimelist.net/images/anime/1716/104880l.jpg)
 #### Banjo’s Perspective
 
 ***Consider It***
@@ -286,7 +286,7 @@ All in all, Nekopara is not a project that’s especially ambitious or exciting,
 ***
 
 ## [**Pet**](https://myanimelist.net/anime/37522/Pet)
-
+![](https://cdn.myanimelist.net/images/anime/1399/94794l.jpg)
 #### Banjo’s Perspective
 
 ***Drop It***
@@ -316,7 +316,7 @@ To summarize, I recommend watching this show for the unique world-building and v
 ## [**Rikei ga Koi ni Ochita no de Shoumei shitemita.**](https://myanimelist.net/anime/38992/Rikei_ga_Koi_ni_Ochita_no_de_Shoumei_shitemita)
 
 (English Title: *Science Fell In Love, So I Tried to Prove It*)
-
+![](https://cdn.myanimelist.net/images/anime/1432/103533l.jpg)
 #### Banjo’s Perspective
 
 ***Must Watch It***
@@ -346,7 +346,7 @@ In short, this is a must-watch for romance lovers, but everyone less into romanc
 ## [**Runway de Waratte**](https://myanimelist.net/anime/40392/Runway_de_Waratte)
 
 (English Title: *Smile Down the Runway*)
-
+![](https://cdn.myanimelist.net/images/anime/1544/104540l.jpg)
 #### Banjo’s Perspective
 
 ***Consider It***
@@ -374,7 +374,7 @@ Overall, Smile on the Runway looks like it's shaping up to be a nicely balanced 
 ## [**Somali to Mori no Kamisama**](https://myanimelist.net/anime/39575/Somali_to_Mori_no_Kamisama)
 
 (English Title: *Somali and the Forest Spirit*)
-
+![](https://cdn.myanimelist.net/images/anime/1938/102796l.jpg)
 #### Banjo’s Perspective
 
 ***Must Watch It***
